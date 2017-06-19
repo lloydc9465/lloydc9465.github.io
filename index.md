@@ -1,4 +1,4 @@
-## Welcome to the GitHub Page
+## Welcome to the GitHub Page :fire: :ok_hand: :joy: :ok_hand: :fire:
 
 You can use the [editor on GitHub](https://github.com/lloydc9465/lloydc9465.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
